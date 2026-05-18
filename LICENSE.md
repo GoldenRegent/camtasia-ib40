@@ -1,4 +1,4 @@
-# 
+# 智能 Adobe Premiere Pro PC版 扩展 是最佳 Adobe Premiere Pro PC版 扩展，集成 插件管理 和 动态图形。安全、可靠、优化，性能最大化。
 
 
 
